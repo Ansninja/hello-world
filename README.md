@@ -1,1 +1,1 @@
-# hello-world im a faggu!
+# Welcome new gamasian!
